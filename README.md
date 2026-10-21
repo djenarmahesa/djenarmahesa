@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+DJENAR MAHESA AYU 
+DJENAR
+XII Merdeka 2
